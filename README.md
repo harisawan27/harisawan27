@@ -2,7 +2,7 @@
 - 👀 I’m interested in web design and development, graphic design and Gen AI 
 - 🌱 I’m currently learning ARTIFICIAL INTELLIGENCE, WEB 3.0 & METAVERSE
 - 💞️ I’m looking to collaborate on web design and development, graphic design and Gen AI
-- 📫 How to reach me : harisawan.000.pe
+- 📫 How to reach me: Portfolio Website Link: harisawan.000.pe
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
